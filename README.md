@@ -1,4 +1,4 @@
-### Hi there 👋
+### H A man's inherent death is either heavier than Mount Tai or lighter than a feather. 👋
 
 <!--
 **shenxinlitt/shenxinlitt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
